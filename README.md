@@ -1,5 +1,5 @@
-# English Translation of Honourable QURAN
+# English Translation Of HONOURABLE QURAN
 
-9:128-129 are from satan! <b>NOT FROM my LORD THE MOST SACRED FREE FROM ALL deficincies!</b>
+9:128-129 are from satan! <b>NOT FROM my LORD MOST SACRED FREE FROM ALL deficincies!</b>
 
 [19x334.com](19x334.com)
